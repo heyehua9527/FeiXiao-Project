@@ -9,5 +9,5 @@
 - 3. Please close **all **anti-virus software/interception software/communication software**that may cause startup failure!
 - 4. After the preparation is complete, Admin Run starts our software.
 - 5. When the visual UI appears, you can enter the **key** you "purchased" to use it~
-# About FeiXiao Team!?
+# About FeiXiao Team Or Buy Keys!?
 ## Our Discord https://discord.gg/XJwDuN2TMd
